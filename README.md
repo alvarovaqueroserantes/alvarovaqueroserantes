@@ -37,7 +37,7 @@ Explore my repositories for a mix of:
 
 ## Let's Connect!
 - [LinkedIn](https://linkedin.com/in/álvaro-vaquero-serantes-7a1775289)
-- Reach me at: [Your Email Here, if you want to add it]
+- Reach me at: vaqueroserantes5@gmail.com
 
 ---
 
